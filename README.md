@@ -1,18 +1,32 @@
 [sensinkan hatimyouzin.txt](https://github.com/user-attachments/files/25292536/sensinkan.hatimyouzin.txt)
 O tipo de homem que a gente gosta é o forte——
+
 Quantas garotas será que pensam assim?
+
 Se eu puder falar só na base da minha pura opinião, sem fonte nenhuma para apresentar, eu diria: talvez setenta por cento. Ou oitenta. Não, provavelmente mais de noventa por cento pensam desse jeito, é o que eu acredito.
+
 Claro que vai haver quem conteste. “Força não importa.” “Prefiro alguém gentil, engraçado, alguém que me faça sentir em paz quando estamos juntos…” Sem dúvida existem muitas 〈mulheres〉《pessoas》 que defendem que essas qualidades são muito mais importantes.
+
 E isso é válido. Não dá para negar. Gentileza, bom humor, sensação de segurança, até mesmo simplesmente ser bonito, tudo isso são fatores importantes para que alguém se apaixone por outra pessoa.
+
 Mas vamos mudar um pouco o ângulo da questão.
+
 Não é sobre que tipo de pessoa você gosta.
+
 É sobre que tipo de pessoa você não gosta.
+
 Também aqui podem surgir mil respostas, mas antes deixa eu perguntar uma coisa.
+
 Ei, me digam: homem fraco é aceitável?
+
 Se adotarmos a ideia de que a vida é uma batalha, você se apaixonaria por um homem cuja força para viver e lutar é claramente inferior à sua?
+
 A resposta é não. Por mais que os tempos avancem, por mais que os valores se diversifiquem, há algo que não muda, essa é uma verdade feminina.
+
 Vivemos numa era em que as mulheres são fortes. Você é uma mulher forte. Sim, ouvir isso não me desagrada nem um pouco. Mas isso não significa que eu queira transcender o papel masculino e tomar o lugar do homem.
+
 Eu sou mulher. Mulher é mulher. O que eu desejo é um homem forte, confiável, viril, alguém que proteja a mim e aos meus filhos.
+
 Isso é instinto. É a natureza da fêmea. Por isso――
 
 私が〈女〉《そう》であるように、彼もまた〈男〉《そう》であるはずだという当たり前のことを、なぜ慮ることが出来なかったのか。
