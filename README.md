@@ -364,36 +364,28 @@ A verdadeira justiça absoluta arrancada das profundezas de 〈Kantan〉《Sonho
 
 「　　――　、！」
 
-　爆轟する気炎と共に、最後の――そして結果の見えた闘争が幕を開けた。
+Junto ao ímpeto explosivo que detona como uma explosão, o último, e já decidido, confronto se inicia.
 
-　〈戟法〉《げきほう》、〈楯法〉《じゅんほう》、〈咒法〉《じゅほう》、〈解法〉《かいほう》、〈創法〉《そうほう》――そして、彼らだけが持つ第六法。共に奥義をつくした〈邯鄲〉《ユメ》の激突は、現実を侵し、幻想を砕き、誰も介在できぬ域で絡み合いながら喰らい合う。
+〈gekihou〉《técnica de alabarda》, 〈junpou〉《técnica de escudo》, 〈juhou〉《técnica de maldição》, 〈kaihou〉《técnica de liberação》, 〈souhou〉《técnica de criação》, e ainda, a sexta lei possuída apenas por eles.
+O choque dos 〈Kantan〉《Sonho》 que atingiram seus limites supremos invade a realidade, despedaça a fantasia e, num domínio onde ninguém pode interferir, se entrelaça enquanto se devora mutuamente.
 
-　この時代、未だ発明されていない核の爆発さえ彼らにとっては既知のものだ。ゆえにそれを〈創形〉《そうぎょう》し、致死の高熱と放射能を撒き散らす〈創界〉《そうかい》を成すことすら造作もない。
+Mesmo explosões nucleares ainda não inventadas já são conhecimento comum para eles. Por isso, moldá-las em forma e criar um mundo que espalha calor letal e radiação é algo trivial. Da mesma forma, também é trivial vestir uma armadura que resista a essa destruição.
 
-　そして、その破壊に耐える鎧を纏うこともまた、同様に。
+Uma 〈gekihou〉《técnica de alabarda》 de 〈jin〉《velocidade》 que transcende a velocidade do som e rompe a gravidade. Uma 〈juhou〉《técnica de maldição》 de 〈san〉《dispersão》 cujo rugido percorre céus e terra, e cujo impacto não cessa mesmo após dar voltas ao redor do planeta. E uma 〈kaihou〉《técnica de liberação》 de 〈tou〉《transparência》 que atravessa instantaneamente todos esses 〈sobrenaturais〉《Sonho》 e invade seus pontos cegos.
 
-　音速を遙か超え、重力を振り切る〈迅〉《じん》の〈戟法〉《げきほう》。
+Tudo é brutal e preciso, um ataque e defesa tão intenso que parece rasgar o céu, e ainda assim, há uma frieza mecânica, como uma máquina montando um quebra-cabeça.
 
-　咆哮は天地を走り、その衝撃が地球を数周してもなお止まらない〈散〉《さん》の〈咒法〉《じゅほう》。
+Ah… como se chamava mesmo esse fenômeno que avança silenciosamente carregando esse calor corrompido?
 
-　それら〈超常〉《ユメ》の悉く、一瞬にしてすり抜け死角へ入る〈透〉《とう》の〈解法〉《かいほう》。
+"Engrenagens do inferno"
 
+Sim, um roteiro demoníaco que avança rumo a uma ruína inevitável. Um aço refinado por uma malícia sem fundo, que esmaga todas as outras possibilidades para impor sua própria conclusão.
 
-　すべてが凄絶、かつ正確で、空が割れる様を幻視するほど烈火怒涛の攻防ながら、機械がパズルを組み上げているような寒々しさが同居している。
+Ela não quer ver isso. E justamente por não querer ver, mesmo sabendo que é inútil, Mizuki deseja com todas as forças—
 
-　ああ、これを、この〈糜爛〉《びらん》した熱量をもって粛々と進んでいく現象をなんと言ったか。
+"Foge… por favor…"
 
-「地獄の歯車」
-
-
-　そうだ、唯一無二の破滅へ転がっていく悪魔の筋書き。他のあらゆる可能性をすり潰し、自慢の商品を売りつけるために底なしの悪意で磨き上げられた鋼鉄だ。
-
-　そんなものは見たくない。見たくないから、無駄だと知りつつも水希は切に望むのだ。
-
-
-「逃げてよ……」
-
-　自分が全部悪かった。
+A culpa… foi toda minha.
 
 　あなたは強い。あなたは強い。とても強いと分かっているから、お願いどうかもうやめて――
 
