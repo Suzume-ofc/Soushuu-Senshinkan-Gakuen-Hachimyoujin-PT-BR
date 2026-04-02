@@ -104,8 +104,8 @@ Em termos simples: seu corpo estava em farrapos. Mesmo sob uma dor intensa o bas
 
 Mas foi justamente essa tortura que serviu de gatilho, forçando-a a reconhecer a realidade.
 
-「Ah…
-Eu… perdi…」
+"Ah…
+Eu… perdi…"
 
 Ali, ela chegou à conclusão: fora derrotada.
 
@@ -113,8 +113,8 @@ Derrotada por quê, isso ela não diz. Porque para ela era óbvio demais para pr
 
 Mais do que sua própria derrota, outra coisa a inquietava agora.
 
-「Todo… mundo…
-Onde… onde vocês estão?」
+"Todo… mundo…
+Onde… onde vocês estão?"
 
 Ela perdeu, isso estava claro.
 Mas e os outros?——sua pergunta se lançou ao vazio.
@@ -134,7 +134,7 @@ Algo estava queimando. O quê? Nem precisava perguntar.
 
 Algo estava espalhado por toda parte. O quê? Tampouco precisava ser dito.
 
-「———」
+"——"
 
 
 Ao compreender que a única viva era ela, a garota soterrada sob uma montanha de cadáveres e um rio de sangue soltava um grito sem voz.
@@ -179,8 +179,8 @@ de
 ser
 pensado.
 
-「〈Sancta Maria ora pro nobis〉《Santa Maria, rogai por nós》
-　〈Sancta Dei Genitrix ora pro nobis〉《Santa Mãe de Deus, rogai por nós》」
+"〈Sancta Maria ora pro nobis〉《Santa Maria, rogai por nós》
+　〈Sancta Dei Genitrix ora pro nobis〉《Santa Mãe de Deus, rogai por nós》"
 
 
 Porque ela sabe.
@@ -189,8 +189,8 @@ Agora que a justiça e as grandes causas foram pulverizadas, agora que os caminh
 
 Ela sabe que os deuses não concedem felicidade com facilidade, mas os demônios, generosos demais, com certeza virão jubilosos oferecer, orgulhosos, a sua mercadoria.
 
-「〈Sancta Virgo virginum ora pro nobis〉《Santa Virgem das virgens, rogai por nós》
-　〈Mater Christi ora pro nobis〉《Mãe de Cristo, rogai por nós》　〈Mater Divinae Gratiae ora pro nobis〉《Mãe da Divina Graça, rogai por nós》」
+"〈Sancta Virgo virginum ora pro nobis〉《Santa Virgem das virgens, rogai por nós》
+　〈Mater Christi ora pro nobis〉《Mãe de Cristo, rogai por nós》　〈Mater Divinae Gratiae ora pro nobis〉《Mãe da Divina Graça, rogai por nós》"
 
 
 　Gota… gota… Algo começa a cair do vazio que ela encara.
@@ -207,15 +207,15 @@ Sangue, sêmen, fezes e urina, misturados por ódio, rancor e dor, a exultação
 Diante do desespero belamente encenado ali, aquilo nada mais era do que a saliva pútrida, fedendo a podridão, que uma besta incapaz de conter sua excitação deixa escorrer.
 
 
-「〈Mater purissima ora pro nobis〉《Mãe puríssima, rogai por nós》
-　〈Mater castissima ora pro nobis〉《Mãe castíssima, rogai por nós》」
+"〈Mater purissima ora pro nobis〉《Mãe puríssima, rogai por nós》
+　〈Mater castissima ora pro nobis〉《Mãe castíssima, rogai por nós》"
 
 
 　Sentindo aquele horror abjeto atravessá-la junto com um arrepio profundo, ela prendeu a respiração.
 
 E para além do buraco que encarava no céu, sem qualquer resquício de orgulho ou pudor, implorou.
 
-「Pa… ra…!」
+"Pa… ra…!"
 
 A voz que arrancou do fundo do peito era tão desesperada que beirava a insanidade.
 
@@ -227,11 +227,11 @@ Então já não basta?
 
 O que mais ainda pretende——ah… é justamente porque eu sei a resposta que isso é tão aterrador.
 
-「Tanto assim……」
+"Tanto assim……"
 
 Afogando-se na chuva torrencial negra, deixou escapar uma voz que mais parecia uma confissão.
 
-「Tanto assim você… me odeia?」
+"Tanto assim você… me odeia?"
 
 
 　■■■■――――
@@ -239,7 +239,7 @@ O nome que ela fiou com tanto cuidado dissolveu-se sem sequer produzir som. E o 
 
 Justamente por isso, naquele instante.
 
-「Eu te amo, Mizuki」
+"Eu te amo, Mizuki"
 
 A Caos que veio para destruir tudo de Sera Mizuki escancarou a boca.
 
@@ -249,8 +249,8 @@ Rasgando o veneno que desabava e a fumaça negra que irrompia, houve alguém que
 
 Uma presença viril, tão altiva, tão digna, que fazia o peito doer de vontade de chorar.
 
-「Levanta, Seraaaaa!
-Não desista, ainda não acabou!」
+"Levanta, Seraaaaa!
+Não desista, ainda não acabou!"
 
 No breu onde todos sucumbem e apodrecem, apenas ele permanece inquebrável. A luz de sua vontade férrea não diminuiu nem um átomo; e ao encarar de frente o desespero que avança como maré, quão ofuscante é sua figura.
 
@@ -299,7 +299,7 @@ Como se nos desprezasse, dizendo “é só isso?”, chamando-nos de fracos, fra
 
 Como se proclamasse que, sendo forte, tudo pode ser conquistado.
 
-「Aa……」
+"Aa……"
 
 Força. O que significa ser forte?
 
