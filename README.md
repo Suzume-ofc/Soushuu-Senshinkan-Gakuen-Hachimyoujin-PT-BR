@@ -324,49 +324,43 @@ Mas, ainda assim, não é o suficiente.
 
 
 
-　雀蜂の大群を思わせる無機質で不吉な〈祝詞〉《オラショ》が、天の大孔を震わせる。
+Um 〈norito〉《oração》 inorgânico e sinistro, semelhante a uma horda de vespas, faz tremer o grande vazio nos céus.
 
-　爛れて地に落ちる果実のように、そこから沸騰した悪夢が溢れ出ようとしているのが分かる。
+Como um fruto apodrecido que cai ao chão, dá para perceber que um pesadelo fervente está prestes a transbordar dali.
 
-　〈位〉《くらい》は同じでありながら、それを止めることが出来ないという彼我の差は、相性などという一言で片付けられるものではない。
+Embora o 〈nível〉《rank》 seja o mesmo, a diferença entre eles, o fato de não conseguir deter aquilo, não pode ser resumida com a simples palavra “afinidade”.
 
-　本来、相性とは表裏一体の関係で、どちらかが一方的に勝るという不平等なものではないのだ。
+Afinidade, por natureza, é uma relação de dois lados de uma mesma moeda; não é algo desigual onde apenas um domina o outro.
 
-　水は火を消す。だが火も水を蒸発させる。木の根は大地を抉って栄養を吸収するが、大地が枯れれば木も朽ちるという相剋こそが森羅万象。
+A água apaga o fogo. Mas o fogo também evapora a água. As raízes das árvores escavam a terra para absorver nutrientes, mas se a terra seca, a árvore também apodrece, esse conflito mútuo é a própria criação.
 
-　甲乙つけ難いとは自然のもとに対等であることを指したもので、甲は必ず乙に勝つとか、そのような理屈は通らない。三竦みの喩えが世にあるように、どのような形でも常に均衡が取れている。
+Dizer que algo é difícil de julgar entre dois lados significa que eles são equivalentes sob a natureza; não existe lógica onde um sempre vence o outro. Como no exemplo do impasse triplo, o equilíbrio sempre se mantém, de alguma forma.
 
+Se A for A como A. Se a água for água como água. Se a serpente for serpente como serpente, então não há problema.
 
-　甲が甲として。水が水として。蛇が蛇であれた場合ならば問題ないのだ。
+Mas… e se não for assim?
 
-　が――そうでなければどうなるか。
+"Vai rir, é? Vai dizer que o meu 〈Kantan〉《Sonho》 é impuro?"
 
-「嗤うかよ、俺の〈邯鄲〉《ユメ》が不純だと？」
+Por exemplo, originalmente fraco, alguém que se tornou forte à força.
 
+"Não se encaixa no molde que deveria ser… é isso que você está dizendo?"
 
-　たとえば、〈元〉《 、》〈々〉《 、》〈弱〉《 、》〈か〉《 、》〈っ〉《 、》〈た〉《 、》〈者〉《 、》〈が〉《 、》〈無〉《 、》〈理〉《 、》〈に〉《 、》〈強〉《 、》〈く〉《 、》〈な〉《 、》〈っ〉《 、》〈た〉《 、》〈場〉《 、》〈合〉《 、》〈で〉《 、》〈あ〉《 、》〈る〉《 、》〈と〉《 、》〈か〉《 、》。
+Se é fraco, então permaneça fraco. Se está sujo, então permaneça sujo.
 
+Esse é o significado de ser natural. Por causa de um tolo egoísta e de mente estreita, incapaz de aceitar a natureza e o karma com que alguém nasce, a água que foi distorcida já não pode mais ser chamada de água.
 
-「あるべき型に嵌っていない。おまえはそう言うのかよ」
+Mesmo que essa transformação seja algo belo, atraente e reluzente, ainda assim, a água turva possui mais poder do que um fluxo puro artificial.
 
+Por isso, o resultado já está decidido.
 
-　弱いのなら弱いまま。汚れているのなら汚れているまま。
+Enquanto ele se apoiar na luz das chamadas virtudes, coragem, amizade, amor, compaixão, senso de dever, aquilo jamais poderá ser derrotado.
 
-　自然であるということの意義。生まれ持った性や業を、良しと認めてやれない狭量で自分勝手な愚か者がすぐ身近にいたせいで、歪んでしまった水はもはや水ではない。
+Porque aquilo é…
 
-　たとえそれが、素晴らしく魅力的で輝く変質であったとしても、人工的な清流よりは泥水のほうが力を持つ。
+"Já chega… para…"
 
-　だから、勝負は見えているのだ。
-
-　勇気、友情、愛、思いやり、使命感――そうした善性と呼ばれる光に彼が依って立つ限り、アレは絶対に斃せない。
-
-　なぜなら、アレは……
-
-
-「もう、やめて……」
-
-
-　アレこそが、邯鄲最深層より引き上げた絶対正義。自身が有する〈本質〉《どろみず》を、〈生〉《き》のままに愛し、憎んでいるのだから。
+A verdadeira justiça absoluta arrancada das profundezas de 〈Kantan〉《Sonho》. Pois ama e odeia, exatamente como é em sua própria 〈vida〉《ki》, a sua 〈essência〉《água turva》.
 
 「　　――　、！」
 
