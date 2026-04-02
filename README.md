@@ -387,75 +387,75 @@ Ela não quer ver isso. E justamente por não querer ver, mesmo sabendo que é i
 
 A culpa… foi toda minha.
 
-　あなたは強い。あなたは強い。とても強いと分かっているから、お願いどうかもうやめて――
+　Você é forte. Você é forte. Eu sei que você é muito forte… então por favor, pare já—
 
+Você disse que não me faria chorar.
+Você disse que me faria sorrir.
 
-　泣かせないと言ってくれた。
+Então, cumpra essa promessa agora. Aqui.
 
-　笑わせてやると言ってくれた。
+É só isso que eu desejo.
 
-　だったら今こそ約束を、ここに履行してほしい。
+Mesmo assim… eu não quero ver mais isso, nem por um instante sequer.
 
-　自分が望むのはただそれだけ。
+"Isso é impossível."
 
-　もうこれ以上こんなものを、一瞬だって見たくないのに。
+Sim… eu sei que é impossível.
 
-「それは無理だよ」
+Porque a razão não está do meu lado, e eu não tenho o direito de culpá-lo.
 
+"Para começo de conversa, quem quebrou a promessa primeiro foi você, não foi?"
 
-　そう、無理だと分かっている。
+Tudo começou ali. E por entender isso melhor do que ninguém… eu caí neste 〈caos〉《forma disforme》.
 
-　なぜなら道理は自分になくて、彼を責める資格などまったくなくて。
+As gotas que escorrem do grande vazio nos céus começaram lentamente a tomar forma.
 
+Suave como gelatina, mas exalando uma opressão impregnada de imundície.
 
-「そもそも、先に約束を破ったのは君のほうだったじゃないか」
+Provavelmente porque, dentro daquilo, todo tipo de sujeira está comprimido até o limite. Mesmo refletindo as chamas do encouraçado em combustão e a batalha ainda em curso, sua superfície, tingida de escuridão, não brilha nem um pouco.
 
+Aquilo, nascido do buraco, também é uma escuridão com forma.
 
-　すべての元凶はそこにある。それを誰より分かっているから、自分はこの〈混沌〉《べんぼう》に落ちたのだ。
+Erguendo-se enquanto vibra em pequenos tremores, como se estivesse cantando… lembra o incômodo de insetos zunindo ao pé do ouvido.
 
-　天の大孔から滴る雫が、徐々に形を持ち始めた。
+Não… na verdade, aquilo é um enxame.
 
-　それは寒天のように滑らかでありながら、著しい不潔さを感じさせる鬱気を滲み出させている。
+Um agrupamento de algo minúsculo.
 
-　おそらくその内部には、ありとあらゆる汚物がはち切れんばかりに詰まっているからだろう。今も続いている戦いと、燃え上がる戦艦による炎の照り返しを受けてなお、暗色に染め抜かれた表面は一切の光沢を発していない。
+Se fosse para definir… o mais próximo seria chamar de insetos.
 
-　孔から生じたこれもまた、形を持った暗黒なのだ。ぞわぞわと歌うように微細な振動を繰り返しながら起き上がっていくその様は、どこか耳元で飛び回る羽虫の不快さを連想させる。
+Uma névoa negra formada por criaturas que causam repulsa instintiva, mosquitos, moscas, abelhas, centopeias, aranhas, baratas…
 
-　いや、これは実際に、極小の何かが寄り集まった群れだった。その何かを定義するなら、昆虫に喩えるのがもっとも近い。
+Cada partícula daquele corpo é repugnante.
 
+Uma sombra que faz qualquer um odiar compartilhar o mesmo mundo com ela.
 
-　目に見えぬほど小さな蚊や蝿、蜂や百足、蜘蛛、ゴキブリといった、生理的嫌悪感を催す諸々で編み上げられた黒い霧。
+Aquilo é, sem dúvida, a própria personificação de energia maligna.
 
+"Anmei, Iezosumaria"
 
-　その身を構成する粒子の一つ一つが汚らわしく、同じ世界に存在するのが誰であっても許せなくなるような影であり、邪悪なエネルギーそのものだった。
+Agora, a massa de malícia que tomou forma humana abriu os braços como se abraçasse os céus e entoou um versículo de bênção.
 
-「あんめい、いえぞすまりあ」
+Sua aparência tremulava como fumaça, e junto com a 〈soutana〉《kasoku》 negra, estava completamente tingido pela escuridão.
 
+Não era possível discernir seu rosto. Era uma existência sem face, e ainda assim, dava para saber que ele sorria.
 
-　今や人型を成した悪意の集合体は、天を抱くように両手を広げて祝福の聖句を口にした。
+Seus olhos, brilhando com uma luz putrefata, estavam tomados por deleite. E o formato erguido de sua boca deixava claro: ele zombava de tudo.
 
-　その面貌は煙状に揺らいでおり、漆黒の〈僧衣〉《カソツク》もろとも闇一色に染まっている。
+A onda de pensamentos malignos que vazava de todo o seu corpo proclamava, incessantemente, que amava você.
 
-　ゆえに容姿は分からない。無貌と評すべき外見ながら、それでも笑っていることが分かるのは、爛れた光を放つ瞳が愉悦の色に濡れているから。
+"Você é linda, Mizuki. Você é absolutamente bela."
 
-　吊り上った口元が、すべてを嘲っているのだと告げているから。
+Disse o homem de névoa negra, com uma voz distorcida, como se várias vozes se sobrepusessem em coro.
 
+Mesmo coberta de sangue, banhada em lágrimas, com o rosto contorcido de medo e repulsa, ainda assim, ele a chamou de bela.
 
-　総身から垂れ流される邪念の波動が、一秒も休まずあなたを愛していると謳いあげているからに他ならない。
+"Lá do outro lado também já está para ser decidido. Como você imagina, o resultado já está claro.
+Mas não chame isso de farsa. Eu me preocupei com a encenação, sabia? Tenho orgulho de dizer que preparei esse palco para te agradar.
+Então… não é um Sonho magnífico?
+Aqui… tudo está completo."
 
-「綺麗だ、水希。君はまったく美しい」
-
-
-　まるで何人もが輪唱しているようなぶれた声で、黒霧の男はそう言った。
-
-　血に塗れ、涙に濡れて、恐怖と嫌悪に引きつった水希の様を、美しいと。
-
-「あちらのほうもじきに決する。君が思っている通り、勝負は見えていることだがね。
-　それを茶番とは言わないでくれよ。これでも演出には気を遣っているんだから、君がお気に召すように舞台を整えたと自負しているんだ。
-　なあ、実に麗しいユメだろう？　ここにはすべてが満ちている」
-
-「〈神野〉《しんの》……」
-
+"Shinno…"
 
 　今にも小躍りしかねない浮かれた調子で話す男に、水希は知らず後ずさりして言葉を返した。これと対峙し、口を開いたというだけで、そこから何万もの昆虫が入り込んでくるような悪夢のイメージに襲われる。
 
