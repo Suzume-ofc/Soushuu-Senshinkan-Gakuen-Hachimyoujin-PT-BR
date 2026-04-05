@@ -457,68 +457,60 @@ Aqui… tudo está completo."
 
 "Shinno…"
 
-　今にも小躍りしかねない浮かれた調子で話す男に、水希は知らず後ずさりして言葉を返した。これと対峙し、口を開いたというだけで、そこから何万もの昆虫が入り込んでくるような悪夢のイメージに襲われる。
+　Diante do homem que falava com um tom eufórico, como se estivesse prestes a começar a dançar, Mizuki recuou instintivamente enquanto respondia. Só de encará-lo… só de abrir a boca diante dele, uma imagem de pesadelo a invadia, como se dezenas de milhares de insetos entrassem por ali.
+
+"Por favor… salve ele."
+
+"Eu não importo. Já chega… então, pelo menos poupe só ele. Desde o começo, o seu alvo era eu, não era? Então os outros não têm nada a ver com isso.
+Se me odeia, então culpe só a mim. Eu não vou fugir, se isso é punição, eu aceito… então… por favor… não vá além disso…"
+
+Um som ecoa. Kichi-kichi——como o rangido de mandíbulas de formigas.
+
+O ar vibra. Wan-wan——como incontáveis moscas voando ao redor.
+
+É assustador. Sujo. Repulsivo. Apenas aqueles olhos sorridentes brilham na escuridão, mas esse contraste só faz lembrar larvas se contorcendo.
+
+Agora mesmo, esmagada pela imensa massa demoníaca que se abate sobre ela, Mizuki não consegue mais suportar e grita.
+
+"Fala alguma coisa, seu covarde! Você não é ninguém!
+Não se aproveite do meu arrependimento e do dele pra fingir ser ele! Isso não é verdade!
+A pessoa que eu amo. aquele homem não é isso!"
+
+　Gentil… talvez um pouco inseguro, mas ainda assim caloroso.
+
+Fui eu quem o empurrou de forma antinatural, dizendo que ele precisava se tornar um homem forte, então, quem é suja… sou eu.
+
+Eu não posso suportar ver ele, que não tem culpa nenhuma, sendo manchado.
+
+"Baseando-se nos seus próprios critérios, querer que eu me torne um 〈conveniência〉《Sonho》 confortável para você… isso é complicado, Mizuki.
+Ele certamente era assim. Ele deve ter pensado desse jeito. Ah… se isso estivesse sempre certo, o mundo seria muito mais simples.
+Desde o começo… não deveria ser que “nós” nunca tivéssemos nos desencontrado?"
+
+"———!"
 
 
-「お願いだから、彼を助けて」
+　Ela não conseguiu refutar aquilo. A verdade estava ali, foi porque havia um desencontro entre eles desde o início que tudo acabou caminhando para o pior.
 
-「私はいい。もういいから、せめて彼だけは見逃して。もともと、あなたの目当ては私でしょう？　だったら、他は何の関係もないじゃない。
-　私が憎いなら、私だけを責めなさいよ。逃げないから、罰だというなら受けるから……だから、もう、これ以上は……」
+"Mas… mesmo que ele me odeie…
+Não, justamente porque ele deve me odiar, é que eu…"
 
+"Ei, ei… já falei, Mizuki."
 
-　音が聴こえる。キチキチと、それは蟻が顎を擦り合わせるような軋みの音。
+Interrompendo-a, a aberração chamada Shinno deu de ombros de forma exagerada. Distorcendo sua face sem forma, ele continuou, como se estivesse rindo dela.
 
-　空気が震える。わんわんと、それは蝿が飛び回っているような無数の振動。
+"Estou dizendo que isso está errado. Quem foi que disse que alguém te odeia?"
 
-　怖い。汚い。おぞましい――にやにやと笑っている双眸のみが闇の中で唯一異彩を放っているが、そのコントラストは芋虫がのたくっているようにしか思えない。
+"Eu já te disse isso várias e várias vezes. Eu amo você."
 
-　今このときも覆い被さってくる膨大な魔の質量に潰されかけて、水希は耐え切れず喚いていた。
+Palavras carregadas até o limite com malícia, e uma loucura que parecia escorrer.
 
-「なんとか言いなさいよ卑怯者！　あんたなんか何処の何者でもないくせに！
-　私と彼の後悔につけ込んで、彼を騙るな！　そんなんじゃない！
-　私の、好きな――あの人は！」
+"Você sempre diz coisas insensíveis sem perceber os meus sentimentos, não é?"
 
+"Eu gosto de pessoas fortes”——aquela frase idiota e amaldiçoada que deu início a tudo… aquela coisa a repetia como se fosse um elogio.
 
-　優しくて、頼りないかもしれないけど暖かくて。
+"Ei… agora eu sou forte, não sou? Então… me ame."
 
-　強い男になりたいからと、そんな不自然に駆り立てたのは自分だから汚いのは自分。
-
-　何の落ち度もない彼を汚されるのは我慢がならない。
-
-「君の尺度で、君にとって心地のいい〈都合〉《ユメ》を僕に求められても困るな水希。
-　彼はきっとこうだった。彼はこう思っていたに違いない。ああ、それが常に当たっていたら、世の中もっと単純に回るだろう。
-　そもそも、“僕ら”が擦れ違うことなどなかったはずじゃあないのかな」
-
-「ッ―――」
-
-
-　その指摘に反論することは出来なかった。前提として自分たちに食い違いがあったからこそ、事態は最悪に向かったのだという現実がここにある。
-
-「でも、たとえ彼が私を憎んでいるんだとしても……。
-　いいや、憎んでいるに違いないからこそ、私は……」
-
-「おいおい。だからあのねえ水希」
-
-
-　なおも言い募ろうとする水希を制して、神野と呼ばれた異形は大袈裟に肩をすくめた。無貌を歪めて、嘲り笑うように言葉を続ける。
-
-
-「それが誤りだっていうんだよ。誰が君を憎んでいるって？」
-
-「何度も何度も言ってるだろう。僕は君を愛している」
-
-
-　満腔の邪念と、滴り落ちるような狂気を込めて。
-
-
-「君はいつも、僕の気持ちに気付かないで無神経なことを言うんだねえ」
-
-
-　私は強い人が好きなのと、すべての発端となった愚かで呪わしい失言を……この化け物は褒め称えているかのように語ったのだ。
-
-「なあ、今の僕は強いだろう？　愛してくれよ」
-
-「―――ふざけるなァッ！」
+"——Não fode comigo!!!"
 
 
 　怒号は血の色に染まっていた。憤死しかねない激昂が水希の身体を衝き動かし、怒りに任せて無手のまま殴りかかる。
